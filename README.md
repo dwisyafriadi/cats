@@ -2,7 +2,7 @@
 # CATS
 CATS AUTO CLEAR TASK
 
-Register Here : [CATS](https://t.me/catsgang_bot/join?startapp=tKk0D2gNv5HQoVC6gDkPt)
+Register Here : [CATS](https://t.me/catsgang_bot/join?startapp=jrZnIfh_pYGVdKqUJ6Tyu)
 
 
 ## Features
